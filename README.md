@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://orcid.org/0009-0006-1275-0732](https://orcid.org/0009-0006-1275-0732)
 
-- ⚡ Fun fact **A super fan for FCB club**
+- ⚡ Fun fact **I'm a super fan for FCB club**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
